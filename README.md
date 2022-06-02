@@ -1,4 +1,6 @@
-![jual produk digital dan jasa diShopee](https://blogger.googleusercontent.com/img/a/AVvXsEipktdDl7Gpw-t1zu6fpcskqCOUmHky3oCKvI2RrDSqA1B1biqnk1DPsv0HlFOF_Attwuwr6CwIYjj5jCQLmQsvYGU47DGWnggSuJGLgjOxPpWB9A7VN2ohJtfhWO8vC-7IkdiAcRDY10Z-ZGEUvPbt-N4zbQeK__s4QlKMmqN3LIjiNWyKWpKeWuhN=w1200-h630-p-k-no-nu)
+[**http://tokoseo.me**](http://tokoseo.me/)
+
+[![jual produk digital dan jasa di Shopee](https://raw.githubusercontent.com/isepmaulanasp/iptv/main/CARA%20JUAL%20PRODUK%20DIGITAL%20DI%20SHOPEE%202022.jpg)](http://tokoseo.me)
 
 **Berikut aku infoin cara berjualan produk non fisik di Shopee** [https://shopee.co.id/sukmaprimajaya](https://shopee.co.id/sukmaprimajaya)
 
